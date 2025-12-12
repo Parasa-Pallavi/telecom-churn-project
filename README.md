@@ -56,3 +56,12 @@ GitHub: https://github.com/Parasa-Pallavi
 Feel free to reach out for collaboration or queries!
 
 ---
+
+## Reports 
+
+<img width="1918" height="996" alt="Screenshot 2025-12-11 180847" src="https://github.com/user-attachments/assets/38535929-865c-4dc2-84e6-75f5b3bfcdbe" />
+<img width="1919" height="1079" alt="Screenshot 2025-12-12 094757" src="https://github.com/user-attachments/assets/fa0a83ad-258b-41e5-ad04-62c31dec6b84" />
+<img width="1917" height="1077" alt="Screenshot 2025-12-12 094809" src="https://github.com/user-attachments/assets/74f24275-ff1d-4434-9e61-2a233078cd95" />
+
+
+
